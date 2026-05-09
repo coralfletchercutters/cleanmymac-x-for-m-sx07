@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://coralfletchercutters.github.io/cleanmymac-x-for-m-sx07/) |
  |---------------------|----------------------:|
 
 
